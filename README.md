@@ -24,5 +24,5 @@ I'm open to collaborating with other developers on interesting web development p
 
 ## 📫 Contact Me
 
-- **Gmail**: [rdr2story9@gmail.com](mailto:rdr2story9@gmail.com)
+- **Gmail**: [m.musazahid@outlook.com](mailto:m.musazahid@outlook.com)
 - **Instagram**: [thofinn2](https://www.instagram.com/thofinn2?igsh=YzljYTk1ODg3Zg==)
